@@ -1,0 +1,24 @@
+{
+  "name": "avanti",
+  "version": "0.0.1",
+  "description": "Fictional Book about Real Views",
+  "main": "index.js",
+  "authors": {
+    "name": "Igor",
+    "email": "igor.kostyuchenok@gmail.com"
+  },
+  "repository": {
+    "type" : "git",
+    "url" : "https://github.com/igorkosta/avanti"
+  },
+  "scripts": {
+    "dev": "vuepress dev src --open",
+    "build": "vuepress build src",
+    "start": "npm run dev"
+  },
+  "license": "MIT",
+  "devDependencies": {
+    "vuepress": "^1.5.3",
+    "vuepress-theme-default-prefers-color-scheme": "^1.1.1"
+  }
+}
