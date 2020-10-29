@@ -11,3 +11,14 @@ trust, cynisism, continuous striving for financial stability and success.
 Combine it with the hatred and distrust to almost everything coming from the
 West and you will have a good picture of almost any educated Russian in his mid
 forties.
+
+# Why `Avanti`
+Not many people know but before becoming a fascist [Benito Mussolini](https://en.wikipedia.org/wiki/Benito_Mussolini) was born into a socialist family and was originally a socialist politician and a journalist at the [Avanti!](https://en.wikipedia.org/wiki/Avanti!_(newspaper)) newspaper.
+
+The rise of the socialist movement in the West combined with the advancement of
+technology created a breed of people disconnected from the real world labeling
+everyone who has a different view - a fascist and trying to `cancel` them by using the
+[Lynch Law](https://en.wikipedia.org/wiki/Lynching) strategies.
+
+They don't know history but are trying to rewrite it at the same time, which
+will inevitable lead to them repeating it all over again.
