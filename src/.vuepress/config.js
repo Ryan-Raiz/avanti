@@ -19,7 +19,7 @@ module.exports = {
   themeConfig: {
     defaultTheme: 'dark',
     logo: '/gorbi.png',
-    repo,
+    // repo,
     editLinks: false,
     docsDir: '',
     editLinkText: '',
@@ -41,8 +41,8 @@ module.exports = {
           collapsable: false,
           children: [
             '',
-            '1-Chapter',
-            '2-Chapter',
+            '1-Chapter/',
+            '2-Chapter/',
           ]
         }
       ],
@@ -54,7 +54,7 @@ module.exports = {
     [
       '@vuepress/google-analytics',
       {
-        'ga': 'G-KG2HVEXE1B'
+        'ga': 'UA-181638197-1'
       }
     ]
   ]

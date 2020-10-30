@@ -1,5 +1,8 @@
 # Chapter 2
-He woke up at 6am and went for a short [morning run](https://www.google.com/maps/dir/Good+Hotel,+112+7th+St,+San+Francisco,+CA+94103,+United+States/37.7937538,-122.3927986/37.8067123,-122.4059284/37.8048135,-122.4202621/37.7791411,-122.4151552/37.7789036,-122.4114645/@37.7969974,-122.4148977,15z/data=!4m13!4m12!1m5!1m1!1s0x8085808365424cf5:0x1bb060c1ef569508!2m2!1d-122.4109849!2d37.7789625!1m0!1m0!1m0!1m0!1m0!3e2).
+He woke up at 6am and went for a short morning run.
+
+[![SF-Morning Run](./assets/SF-MorningRun.png)](https://www.google.com/maps/dir/Good+Hotel,+112+7th+St,+San+Francisco,+CA+94103,+United+States/37.7937538,-122.3927986/37.8067123,-122.4059284/37.8048135,-122.4202621/37.7791411,-122.4151552/37.7789036,-122.4114645/@37.7969974,-122.4148977,15z/data=!4m13!4m12!1m5!1m1!1s0x8085808365424cf5:0x1bb060c1ef569508!2m2!1d-122.4109849!2d37.7789625!1m0!1m0!1m0!1m0!1m0!3e2)
+
 After a quick shower, he dressed up and left his hotel. He decided to take
 a walk to Sasha's hotel with a quick stop at a coffee shop.
 
@@ -60,9 +63,36 @@ It was the time to call the [gorodovoy](https://ru.wikipedia.org/wiki/%D0%93%D0%
 > - "How about in 40 minutes at [Palace of Fine Arts](https://en.wikipedia.org/wiki/Palace_of_Fine_Arts)"
 > - "Ok, see you in 40 minutes, fucker 😀"
 
-[![From Jefferson Street to Palace of Fine Arts](./1-Chapter/assets/498-Jefferson-Str-to-Palace-of-Arts.png)](https://www.google.com/maps/dir/37.8077107,-122.4204267/37.8024925,-122.4487285/@37.8038963,-122.4433286,15z/data=!3m1!4b1!4m2!4m1!3e2)
+[![From Jefferson Street to Palace of Fine Arts](./assets/498-Jefferson-Str-to-Palace-of-Arts.png)](https://www.google.com/maps/dir/37.8077107,-122.4204267/37.8024925,-122.4487285/@37.8038963,-122.4433286,15z/data=!3m1!4b1!4m2!4m1!3e2)
 
 He didn't want to take an UBER, that's why he decided to [walk](https://www.google.com/maps/dir/37.8077107,-122.4204267/37.8024925,-122.4487285/@37.8038963,-122.4433286,15z/data=!3m1!4b1!4m2!4m1!3e2). It will give him
 some time to think about the situation and not being noticed by a cab driver - the less exposure the better.
 
 Weirdly enough he met Vlad for the first time in Budapest two years ago. Back then they were working on the [Transcarpathia](https://www.euractiv.com/section/eastern-europe/news/hungary-and-ukraine-exchange-warnings-over-transcarpathia/) case to get the "healthy" tension between Ukraine and Hungary going. He was associated with one Budapest based startup that drove some social media campaigns that caught the attention of [AH](https://en.wikipedia.org/wiki/Constitution_Protection_Office), so he needed to leave Hungary in a safe manner.
+
+He was walking the streets of San Francisco trying to concentrate on what's
+happened and what he should do next. Back in his head he was still thinking
+about the call he received this morning - `who the could that have been?`. He had
+a peculiar feeling that it won't be the last time he will get a call from this person.
+
+He saw Vlad from far, he looked fresh as always - tanned with white surfer hair
+he obviously enjoyed his new life in California. Sipping on his coffee or tea,
+he was chatting on the phone. Once he spotted Arthur, he waved his hand showing
+the direction and started walking. They met in around 50 metres and walked
+together.
+
+> - "Where are we going?"
+> - "To my car. It's very nice seeing you, man. How have you been?"
+> - "Great until today's morning. How are you?"
+> - "I'm awesome dude. I love it here. The weather is great, the nature is
+>   amazing - terrific place."
+> - "Don't you miss Europe - all the history and culture?"
+> - "C'mon man, we grew up in the same place, you remember how we were dragged
+>   to the museums and theaters and philarmonies when we were kids - I'm tired
+>   of it. And let's be honest Europe is kinda either almost the same or so
+>   fucked that you don't want to visit" - he smiled. "Get into the car".
+
+They got into Vlad's white Miata and drove to Vlad's house.
+
+[![Vlad's Home](./assets/PalaceOfArts-48thAvenue.png)](https://www.google.com/maps/dir/Palace+of+Fine+Arts,+3601+Lyon+St,+San+Francisco,+CA+94123,+Vereinigte+Staaten/1401+48th+Ave,+San+Francisco,+CA+94122,+USA/@37.7820113,-122.4955958,14z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x808586d510144681:0xe960db8a581aacf5!2m2!1d-122.4486055!2d37.8020068!1m5!1m1!1s0x80858796bd4ef215:0xabaaaba699627164!2m2!1d-122.5082746!2d37.7601747!3e0?authuser=2)
+
