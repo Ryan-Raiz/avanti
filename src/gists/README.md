@@ -71,3 +71,24 @@ Whenever you join a system (any system), you should aware of certain rules:
 - **System will always win** - you can kid yourself into thinking you can fight
   the system - don't.
 - **You can only exit one system by entering another**
+
+# The Idea
+The idea is always bigger than an individual or even an organization. The idea
+is the main base for all good and all evil in this world.
+
+Once you expressed your idea and made it public it doesn't belong to you
+anymore.
+
+The funny thing though is that the source of every idea is the hunger for power
+that every individual carries with himself since his childhood.
+
+The most influential people are most of the times the ones who either didn't
+get enough attention in their childhood or were bullied in their teens. The
+desire the most to show the world that they can crush their offenders and got
+all the girls/guys they were ignored by.
+
+# Ass
+> - "You've been with the company long enough and should know that there's no such
+thing as `our people`. We have a very good relationship but when MOM will force
+me to choose between my ass and yours, I will prefer mine any time of the day - I like my ass 😉."
+> - "Yeah, I know, exactly as the half of gay Frisco."

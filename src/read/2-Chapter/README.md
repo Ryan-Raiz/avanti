@@ -89,10 +89,54 @@ together.
 > - "Don't you miss Europe - all the history and culture?"
 > - "C'mon man, we grew up in the same place, you remember how we were dragged
 >   to the museums and theaters and philarmonies when we were kids - I'm tired
->   of it. And let's be honest Europe is kinda either almost the same or so
->   fucked that you don't want to visit" - he smiled. "Get into the car".
+>   of it. And let's be honest nowadays Europe is kinda almost the same
+>   everywhere - it's become either a Middle East or North Africa almost
+>   everywhere" - he smiled. "Get into the car".
 
 They got into Vlad's white Miata and drove to Vlad's house.
 
+> - "Ok, tell me what's the problem? What brings you to uncle Vlad."
+> - "I think I'm in a deep shit."
+> - "Again? What's happened this time? What law did you break? Did you kill
+>   someone?"
+> - "You know I would never do. I think someone is trying to set me up.  Imet
+>   a girl yesterda..."
+> - "Here we go - all the fucking problems you straight guys have are because
+>   of the pussy. Was it at least worth it? 😂"
+> - "Vlad, it's not fucking funny. I met Sasha from Munich, you remember, I was
+>   telling you about her in Budapest."
+> - "The girl you were working with in Munich, right, when you were building
+>   your legend."
+> - "Exactly. I had to meet her for a walk today in the morning. I alread y was
+>   in the lobby of her hotel and got a call from, funny-funny, Budapest.
+>   Whoever was on the other end told me that Sasha is dead and I should get
+>   out of there. So, I asked the guy at the desk to cal her but she didn't
+>   answer. Now, I have to get out of the country and probably not under the
+>   name I entered US - just in case."
+
+They arrived at Vlad's house, parked the car and went inside.
+
 [![Vlad's Home](./assets/PalaceOfArts-48thAvenue.png)](https://www.google.com/maps/dir/Palace+of+Fine+Arts,+3601+Lyon+St,+San+Francisco,+CA+94123,+Vereinigte+Staaten/1401+48th+Ave,+San+Francisco,+CA+94122,+USA/@37.7820113,-122.4955958,14z/data=!3m1!4b1!4m14!4m13!1m5!1m1!1s0x808586d510144681:0xe960db8a581aacf5!2m2!1d-122.4486055!2d37.8020068!1m5!1m1!1s0x80858796bd4ef215:0xabaaaba699627164!2m2!1d-122.5082746!2d37.7601747!3e0?authuser=2)
+
+> - "Do you want a drink, cause I need one to relax a bit and think."
+> - "I'd get an IPA, I know you have one."
+> - "Sure, serve yourself - there's plenty in the fridge. I'll go with red
+>   wine."
+
+He went to the fridge and took a bottle of Fog Breaker IPA.
+
+<p align="center" width="100%">
+  <a href="https://www.anchorbrewing.com/beer/fog_breaker_ipa" alt="Fog Beaker
+IPA" target="_blank">
+    <img align="center" width="33%" src="./assets/FogBreakerIPA.png" />
+  </a>
+</p>
+
+> - "Ok, so - do you have a second passport you can use to leave the country?
+>   Honestly I shouldn't even ask this question - you should fucking have one."
+> - "Yes, I do but I haven't used in a while. I kinda got used to my identity."
+> - "Leave this explanation to your shrink, once you will be allowed to talk to
+>   one. You'll be fine. We'll have to get you on a private jet anyways. If
+>   Sasha is really in a better place, I wouldn't risk to get you on a regular
+>   plane."
 
