@@ -138,5 +138,43 @@ IPA" target="_blank">
 > - "Leave this explanation to your shrink, once you will be allowed to talk to
 >   one. You'll be fine. We'll have to get you on a private jet anyways. If
 >   Sasha is really in a better place, I wouldn't risk to get you on a regular
->   plane."
+>   plane" - he was walking up and down his living room thinking. "Let me make
+>   a couple of calls to see if we can get you on the plane to Europe
+>   tomorrow."
+> - "Sure. Thanks man. I really appreciate it and I really like to see you.
+>   Don't you want to catch a plane with me and spend a week or two in Europe?"
+> - "No way! As I said - Europe is not my piece of cake anymore. Ok, relax for
+>   a bit."
 
+It was a very nice and warm California evening. Vlad's house was so close
+to the ocean that you could hear it grolling. He loved ocean but would prefer
+to be somewhere more remote and calm than SF - Azores, it would be great to be
+there now. Vlad walked back into the room.
+
+> - "Ok, we have it - daddy solved all your problems. You fly tomorrow to your
+>   beloved Budapest from [Oakland International](https://en.wikipedia.org/wiki/Oakland_International_Airport) at 8am with one more guy - some Hungarian businessman that flies back home.
+
+<p align="center" width="100%">
+  <a href="https://en.wikipedia.org/wiki/Oakland_International_Airport" alt="Oakland International AirportFog Beaker
+IPA" target="_blank">
+    <img align="center" width="70%" src="https://upload.wikimedia.org/wikipedia/commons/e/e0/Aerial_view_of_Oakland_International_Airport.jpg" />
+  </a>
+</p>
+
+> - "Thanks for saving my ass again, man!"
+> - "It's my job - you don't have to thank me. Ok, try to relax until tomorrow, I'll go visit my boyfriend and will pick you up tomorrow."
+> - "Who do you think have called me from Budapest in the morning? Do you think
+>   it was one of our guys?"
+> - "You've been with the `mothership` long enough and should know that there's no such
+thing as `our guys`. We have a very good relationship with you but when the Mothership will force
+me to choose between my ass and yours, I will prefer mine any time of the day - I like my ass 😉. Most of `our guys` will do the same. Ok, I'm going out tonight, my extremely handsome friends are waiting to celebrate my dance moves. I'll pick you up at 6am tomorrow. Try to get some rest."
+> - "Sure, please, go enjoy yourself. I'll try to get some sleep. It's been
+>   a rough couple of days."
+> - "Thanks dad but I don't need your permission. I'm a grown up proud gay boy
+>   😄. Ok, mate, see you in the morning."
+
+Vlad left his unfinished glass of red wine in the kitchen, took his keys and the
+wallet and set off.
+
+Arthur some time thinking about the past day drinking some more beers just
+trying to `relax` in an old-fashioned way until he started to fall asleep.
