@@ -92,3 +92,13 @@ all the girls/guys they were ignored by.
 thing as `our people`. We have a very good relationship but when MOM will force
 me to choose between my ass and yours, I will prefer mine any time of the day - I like my ass 😉."
 > - "Yeah, I know, exactly as the half of gay Frisco."
+
+# Feelings
+> - "I really love your ass. I think it should be UNESCO's World Heritage
+>   site."
+> - "It sounds sexist."
+> - "It sounds passionate and not sexist. Stop using this `socially
+>   constructed` forms in my presence 😃. If you think I'm objectifying you - I surely do, cause you're an object to me, exactly as I'm the object to
+>     you. I'm sick and tired of the liberal propaganda machine that tells me
+>     stop feeling anything towards women. I'm not objecting to my body that's
+>     shooting hormones into my blood every time I see a beautiful woman."

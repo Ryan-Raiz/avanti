@@ -64,7 +64,41 @@ They hugged and he went to the terminal. The girls was already waiting for him
 with the name shield. He went straight to her:
 
 > - "Good morning, I'm Arthur. You look great today!"
-> - "Oh, good morning Mr. Arhur. The jet is ready, please follow me."
+> - "Oh, good morning Mr. Arthur. The jet is ready, please follow me."
 
-They went through the building to the airfield, get into a small electric car
-and started driving towards the business jet.
+They went through the building to the airfield, get into a golf cart
+and started driving towards the jet. He was greeted by the pilots and his flight
+companion - a good-looking half German, half Hungarian entrepreneur from
+Budapest who was also living in Munich part time. It was quite convenient - they could speak either English or German. Arthur was fluent in both
+  languages but preferred to speak English.
+
+Even after he spent more than half of his life and the most of his adult life
+in Germany but being a boy from Leningrad he still couldn't forgive the Germans
+for the [Siege of Leningrad](https://en.wikipedia.org/wiki/Siege_of_Leningrad) where the people had to dig out freshly buried
+bodies and use their meat as food to survive.
+
+Every little boy from Leningrad grew up with staples of books that showed the pictures
+of streets of Leningrad covered with snow that had sledges with dead bodies.
+
+<p align="center" width="100%">
+  <img align="center" width="50%" src="https://tmora.org/wp-content/uploads/2016/12/Siege.jpg" />
+</p>
+
+> - "Thank you very much for taking me with you. It's really hard to get to
+>   Europe at the moment with almost all countries being locked down and the
+>   airlines cancelling most of the flights."
+> - "Absolutely no problem. It's even better than I don't have to fly alone."
+> - "I would love to keep you company but I have to get some sleep. If you
+>   would excuse me for a couple of hours I would try to rest for a bit and we
+>   can spend some time together before the landing."
+> - "Sure, no worries - I have a lot of work to do anyways and the flight time
+>   is the best possible time to use for work - nobody is disturbing you. Let's
+>   see if I will be awake when you will wake up 😀."
+
+He knew he won't be able to fall asleep immediately but he needed some rest-
+the time after the landing will be short and intense. He will have to find out
+what has happened in San Francisco and who was trying to set him up. The talks
+about Russian intervention in the US election campaign haven't stopped for the
+last 4 years but everything what they were talking about was stupid lies they
+used to let the democratic party to get to the power again.
+
