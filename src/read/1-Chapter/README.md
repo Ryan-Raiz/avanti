@@ -116,4 +116,4 @@ She hugged him and rushed to her car.
 He got back to his hotel trying to analyze whether meeting Sasha in US was
 suspicious. Yes, she was working for a big international insurance enterprise with offices all around the world and yes they could potentially launch a new product in US but since he started to work for `Mom`, he became overly suspicious and let's be honest he never believed in serendipity.
 
-He decided to try to find out tomorrow whether his suspicion has any real base below it.
+He needed to dig deeper to understand what going on.

@@ -176,5 +176,5 @@ me to choose between my ass and yours, I will prefer mine any time of the day - 
 Vlad left his unfinished glass of red wine in the kitchen, took his keys and the
 wallet and set off.
 
-Arthur some time thinking about the past day drinking some more beers just
-trying to `relax` in an old-fashioned way until he started to fall asleep.
+Arthur spent some time just sitting on the couch thinking about the past day drinking some beers and just
+trying to `relax` until he started to fall asleep.
