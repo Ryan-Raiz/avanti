@@ -99,6 +99,19 @@ He knew he won't be able to fall asleep immediately but he needed some rest-
 the time after the landing will be short and intense. He will have to find out
 what has happened in San Francisco and who was trying to set him up. The talks
 about Russian intervention in the US election campaign haven't stopped for the
-last 4 years but everything what they were talking about was stupid lies they
-used to let the democratic party to get to the power again.
+last 4 years but all the accusations were blatant manipulative lies without any
+evidence.
 
+After the fall of Soviet Union, USA factually lost its only enemy, so driven
+by the fairy tales of Hollywood and Marvel comic books, they invented new
+enemies for the people but the state still needed one.
+So after some trial and error they re-invented Russia as an enemy in early
+2000s.
+
+US attempted to completely destroy the biggest part of the former USSR
+- Russian Federation. Drug and people trafficking- the social impact was immense. Life expectancy fell, with up to five million excess adult deaths in Russia in 1991-2001, birth rates collapsed.
+
+Even after Russia reestablished itself, US continued with the efforts to
+undermine it by spreading the borders of NATO and lately creating the
+anti-Russia - Ukraine by using the Nationalists ideology and and Ukraining
+right radicals.
