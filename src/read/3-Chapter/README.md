@@ -102,16 +102,29 @@ about Russian intervention in the US election campaign haven't stopped for the
 last 4 years but all the accusations were blatant manipulative lies without any
 evidence.
 
-After the fall of Soviet Union, USA factually lost its only enemy, so driven
+> After the fall of Soviet Union, USA factually lost its only enemy, so driven
 by the fairy tales of Hollywood and Marvel comic books, they invented new
 enemies for the people but the state still needed one.
 So after some trial and error they re-invented Russia as an enemy in early
 2000s.
 
-US attempted to completely destroy the biggest part of the former USSR
-- Russian Federation. Drug and people trafficking- the social impact was immense. Life expectancy fell, with up to five million excess adult deaths in Russia in 1991-2001, birth rates collapsed.
+> US attempted to completely destroy the biggest part of the former USSR - Russian Federation. Drug and people trafficking- the social impact was immense. Life expectancy fell, with up to five million excess adult deaths in Russia in 1991-2001, birth rates collapsed.
 
-Even after Russia reestablished itself, US continued with the efforts to
-undermine it by spreading the borders of NATO and lately creating the
-anti-Russia - Ukraine by using the Nationalists ideology and and Ukraining
-right radicals.
+> Even after Russia reestablished itself, US continued with the efforts to
+undermine it by widening the NATO and eventually creating an anti-Russia out of Ukraine by going full in and
+leading the Coup D'Etat in 2014 by killing people on both sides and using the
+help of right wing extremists on supporting the newly created government
+
+His travel companinon was deeply concetrated on his work - at least that's how
+it looked like since he was staring on his notebook and fast typing something
+on his keyboard. Does he have to get suspicious - no, bullshit Vlad couldn't
+have set him up.
+
+> - "Could I get a glass of whiskey, please?" - he asked the flight hostess>
+> - "Yes, sir, sure. We have Macallan, Tallisker and Higland Park - which one
+>     do you prefer?"
+> - "Higland Park, please."
+
+She returned with a glass of whiskey. Jet was ready to take off.
+
+He put the glass on the table and fastened the seatbelt.
