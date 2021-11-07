@@ -41,10 +41,10 @@ module.exports = {
           collapsable: false,
           children: [
             '',
-            '1-Chapter/',
-            '2-Chapter/',
-            '3-Chapter/',
-            '4-Chapter/',
+            ['1-Chapter/', 'Chapter 1 - Sasha'],
+            ['2-Chapter/', 'Chapter 2 - Vlad'],
+            ['3-Chapter/', 'Chapter 3 - Flight'],
+            ['4-Chapter/', 'Chapter 4 - Serge']
           ]
         }
       ],

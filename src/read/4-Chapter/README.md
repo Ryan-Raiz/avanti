@@ -53,8 +53,41 @@ meeting at the [Elisabeth Bridge](https://goo.gl/maps/NemzJzJ6sHU1DeCYA) was arr
 
 Arthur left the Café and slowly walked towards the bridge. He ripped the piece
 of paper in small pieces and threw it into the trash bin. He didn't take the
-straigt way along the river but a took a detour. Walking the streets, making
-a lot of turns - it was easier to check if someone is following him.
+straigt way along the river but a detour through the smaller streets doing
+a lot of turns - it was way easier to check if someone was following him.
+
+He arrived at the bridge and started walking towards [Buda](https://www.contiki.com/six-two/buda-vs-pest-which-side-of-the-river-are-you-on/).
+He knew his phone will start buzzing when Serge will be near him. He walked
+slowly making stops and enjoying the view from the bridge - he wasn't in
+a rush. About half way in his phone started buzzing but there was nobody near
+him - he looked to the other side of the bridge and saw a woman walking to
+Buda. He followed her but kept walking on his side. He knew he had to get to
+the other side at the and of the bridge, otherwise he won't be able to follow
+the girl anymore. Once he was close to the end he waited the road to get empty
+and rushed to the other side. He saw that the girl slowed down a bit helping
+him to follow her. She walked off the bridge, took the firs left where the
+parking was. She walked straight to her car, got it and started the engine. He
+get into the car on the passenger seat and she immediately started driving.
+
+- Who are you? - he asked
+- I will bring you to Serge.
+
+They drove along the Danube in the early dusk not talking. He felt calm as if
+all of a sudden he was in a safe place, just enjoying the ride through the
+night city.
+They took the [Liberty Bridge](https://goo.gl/maps/wuxHTyPK3UBrGDV39) back to
+Pest and drove straight into the city. After around 10-15 minutes drive she
+stopped the car in a very narrow street [Vasvári Pál u. 5](https://goo.gl/maps/tHTYnRDzh5hQbxmA7).
+
+- Get out here - two buildings further, ring the bell with the name Fodor
+  Szabó.
+
+He silently left the car and shut the door. The car drove away. He walked for
+3 minutes and rang the bell - the door opened. He walked in and heard the voice
+from above saying:
+- Go up - third floor!
+
+
 
 - After meeting Serge they will go to this apartment or walk the streets
 - Serge tells him who currently works in the city - Ukranians, Germans,
