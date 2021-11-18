@@ -87,6 +87,42 @@ He silently left the car and shut the door. The car drove away. He walked for
 from above saying:
 - Go up - third floor!
 
+Arthur went up to the last floor. A middle-aged man was waiting for him in the
+door frame.
+- How was your flight - he asked.
+- It was good, thank you. May I come in?
+- Yes, sure, I'm sorry. I'm just excited to see you. Please come in.
+
+Arthur went in. He put his bag on the floor at the entrance and went into the
+dining room. There was some wine and food on the table.
+
+- Have you been waiting for someone? - Arthur asked.
+- Why?
+- It just looks as you were wating for some guests.
+- No, I was only waiting for you. Wanna drink?
+- Sure, scotch would be good!
+- I have a Glenmorangie and a Caol Ila.
+- Caol Ila, please.
+
+Serge went into his open kitchen and grabbed a bottle of Caol Ila and two
+glasses. He poured whiskey in the glasses and gave one glass to Arthur.
+
+- So, how can I help you?
+- You heard what happened in San Francisco, right?
+- Some of that, sure.
+- I wanna find out who was calling me from Budapest when I found out about the
+  murder of my friend.
+- Are you sure, she was murdered? Did you see her body?
+- Not personally but I saw the news about the murder.
+- You know, the news don't mean shit. We create news ourselves.
+- Yes, I know, but these weren't the news from us.
+- It doesn't matter it's the same all around the globe - you cannot trust the
+  news anymore - Serge took a sip of whiskey - What's the phone number you got
+called from?
+- Here it is - Arthur reached his mobile phone to Serge - I have another
+  question - who's currenlty working in the city?
+
+
 
 
 - After meeting Serge they will go to this apartment or walk the streets
