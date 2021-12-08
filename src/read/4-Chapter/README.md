@@ -121,15 +121,38 @@ glasses. He poured whiskey in the glasses and gave one glass to Arthur.
 called from?
 - Here it is - Arthur reached his mobile phone to Serge - I have another
   question - who's currenlty working in the city?
+- The usual suspects: Americans, Russian, some Brits, Germans and lately more
+  and more Ukranians, though I'm not sure they are to be taken seriously - I'd
+say only if they work for Brits, Americans or Germans. Oh, yeah, there're some
+Croatians as well.
+- Who do you think could call and warn me?
+- I have no clue to be honest. I wouldn't even be sure that the call was made
+  from Budapest.
+- Could you, please, try to find out for me who could that be - or at least
+  who's currently the most active ones in the city.
+- Sure, I'll try to find something out for you. By the way: are you sure your
+  friend is dead?
+- I've seen it on the news.
+- Have you seen the body? Have you seen her name on the news? I don't have to
+  tell you that we live in the post-truth-time - you shouldn't believe anything
+you haven't heard or seen yourself.
+- No but I don't think there were multiple accidentes in the same hotel on this
+  day. Plus, I got a call if you remember.
+- Yes, I do remember and that's exactly what makes me suspicious. Do you wanna
+  stay at my place today?
+- No, I'll stay in a hotel. Can you recommend one? Not too big and rather central.
+- [Emerald](https://goo.gl/maps/JVHF8cyam6izHfun9) is pretty good. Should
+  I get you a room?
+- Yeah, thanks! Can I pour myself some more whiskey?
+- Absolutely - serve yourself. I'll call the hotel and get you a room for
+  a couple of nights. You can decide yourself if you wanna stay there. Try to
+relax tonight - go out, get some drinks. I will contact you tomorrow, when
+I will find out more about your situation.
+
+Sergey took his phone and called the hotel. Arthur poured himself some more
+Caol Ila and was sipping it looking out of the window on the evening Budapest.
 
 
-
-
-- After meeting Serge they will go to this apartment or walk the streets
-- Serge tells him who currently works in the city - Ukranians, Germans,
-  Americans, Russians. Hungarians and Croatians are getting involved sometimes.
-- Serge will ask him questions about Sasha and if she's really dead (you
-  haven't seen the body yourself)
 - He will persuade Arthur to either stay at his place or book a hotel for him
 - Arthur doesn't want to be tracked, so he wants to get a room in a hotel
   without revealing the name
