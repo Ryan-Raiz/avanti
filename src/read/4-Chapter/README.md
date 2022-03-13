@@ -85,7 +85,7 @@ stopped the car in a very narrow street [Vasvári Pál u. 5](https://goo.gl/maps
 He silently left the car and shut the door. The car drove away. He walked for
 3 minutes and rang the bell - the door opened. He walked in and heard the voice
 from above saying:
-- Go up - third floor!
+- Go all the way up - third floor!
 
 Arthur went up to the last floor. A middle-aged man was waiting for him in the
 door frame.
@@ -101,10 +101,10 @@ dining room. There was some wine and food on the table.
 - It just looks as you were wating for some guests.
 - No, I was only waiting for you. Wanna drink?
 - Sure, scotch would be good!
-- I have a Glenmorangie and a Caol Ila.
-- Caol Ila, please.
+- We have `Glenmorangie` and `Caol Ila`.
+- `Caol Ila`, please.
 
-Serge went into his open kitchen and grabbed a bottle of Caol Ila and two
+Serge went into his open kitchen and grabbed a bottle of `Caol Ila` and two
 glasses. He poured whiskey in the glasses and gave one glass to Arthur.
 
 - So, how can I help you?
@@ -149,20 +149,115 @@ you haven't heard or seen yourself.
 relax tonight - go out, get some drinks. I will contact you tomorrow, when
 I will find out more about your situation.
 
-Sergey took his phone and called the hotel. Arthur poured himself some more
+Sergey took his phone and was calling the hotel. Arthur poured himself some more
 Caol Ila and was sipping it looking out of the window on the evening Budapest.
+It was time to visit his hometown again. That's what he'll do once he's done
+with current issues.
+
+- I booked for you two nights in the [Emerald](https://goo.gl/maps/JVHF8cyam6izHfun9)
+- Great! Thank you. I'll be going then. I'd like to spend some time alone and
+  get some rest. Let's get in touch tomorrow.
+- I'll call you tomorrow. I'll spend the night trying to find out who could
+  have been involved in the phone call that you received. Should I drive you to
+the hotel.
+- No, I'm fine - I'll walk.
+
+He took his bag and left Segey's appartment. He was walking the night streets
+of Budapest and mentally taking some time off of the problems he unintenionally
+got in. He still had no clue, who could want to set him up and why. He was also
+thinking about Sergey's words that as long as he hasn't seen the body of Sasha
+himself, he cannot be sure that she's dead.
+
+He had good memories about Budapest. He remembered how they were roaming the
+streets of the city together with Vlad before he trasfered to SF.
+
+Thinking about the past and the present, he reached the hotel. He got the keys
+at the counter and went up to his room. He dropped the bag on the bed, took his
+clothes off and went to the shower.
+
+After he got out of the shower, he put on new clothes and put the dirty ones in
+the `cleaning` bag. It was time for a drink. He took his phone, his wallet and
+the key-card from the room. He went downstairs into the hotel bar and ordered an old fashioned.
+He finished it quickly, put it on his room and left the hotel. He needed to get outside.
+He decided to walk until he finds another bar. He was hoping to get his head clean, to get some
+fresh perspective on the situation he's currently in. He wasn't sure anymore if Sasha was dead or not.
+He didn't find out who was calling him from Budapest and why. Someone was playing a game with him
+the rules of which he doesn't know.
+
+He was walking passed an Irish Pub and decided to go in. He went straight to the bar and ordered a Guinness.
+He hasn't done 2 sips yet when a girl sat next to him.
+- Hi! It was a beautiful long haired brunette in a dark, tight dress and a leather jacket.
+- Hi! Do we know each other?
+- I'm Nadja. What is your name?
+- Hi Nadja! I hear a light South German or Austrian accent.
+- Austrian. Do you speak German?
+- Ja, das tue ich - but it's not the language I prefer. If you don't mind, I'll continue in English. What brings such a beautiful lady as yourself to talk to such an average guy like me?
+- You looked lost but cute when you came in.
+- Is that a reason to come and talk to a guy?
+- If you like him - yes.
+- Thank you! It's very nice of you but I'm not in the mood right now.
+- Will you take my number? I'd love you to call me some time - she smiled at him beautifully.
+- I'm sorry, I'm not in the mood. I'm really not.
+- Give me you phone - you won't regret it
+
+Arthur unlocked his phone and slid it to Nadja. She took it and called herself.
+
+- What are you doing?
+- Calling you.
+
+She put the phone to her year. Arthur's phone started buzzing. He looked at his screen.
+
+- Where did you get this phone? - he sounded really angry - Who are you?
+
+He grabbed her hand, took her cell phone and put it in his pocket. He threw the money on the bar counter and started to drag her out of the bar.
+
+- We need to get out of here fast. Where did you get this phone from?
+- A guy outside of the bar gave it to me. He paid me 500 euros to talk to you and to call you from this phone
+
+Arthur was walking fast pushing off people that were on his way. Shortly before the exit a guy tried to stop him. Arthur kicked him off his legs and continued to walk.
+
+They ran out outside and kept walking really fast to not draw any attention. Arthur was faster, so he was almost dragging Nadja over the pavement.
+
+- Can you walk a bit slower - she asked - I'm on high heels, I cannot walk that fast.
+- We have to get some place safe as fast as possible. Keep walking close to me - it's safer for you.
+- Why should I trust you?
+- Do you have anyone else you can truly trust right now? If I will let you go, they will probably get rid of you.
+- Who are them?
+
+Arthur was looking for a cab although he wasn't sure the driver won't be one of the people who sent Nadja to him. The were walking pass the pizza shop that offered deliveries. He saw a courier on a scooter that just came back from the customer and was walking to pick up the next one. He jumped on the scooter, shouted to Nadja to get on and they rode away. He needed to get out of the city fast but he also wanted to find out who was behind this all.
+
+Arthur rode to Sergey taking smaller streets and checking for the tail. They stopped 3 blocks away from Sergey's appartment, left the scooter on the pavement walked into the closest coffee shop and sat at a table.
+
+- Please, order something for yourself. Get me an espresso. Try to act normally. I have to make a call.
+
+He walked outside and called Sergey.
+
+- Don't talk just listen. I have the phone I've been called from when I was in SF. I need you to find out who the sim card is registered to. I also need a car to get out of the country - something low-key. I'll have to take a girl with me. I'll share my location with you. Be fast - the sooner we'll get out of Hungary, the better. Bye!
+
+He went back it and took a sip of coffee.
+
+- Italian espresso is much better.
+
+He saw that Nadja was shaking. He took her hand.
+
+- Try to relax. I know that you're afraid - don't be. We'll take care of you.Do you have your passport with you?
+- No. Why?
+- We'll have to leave the country - it's not safe to stay here for you. I will drive you to Austria. Where should I drop you off? It's better if you don't stay at your home - they can get to you.
+- I don't think I'll feel safe back in Austria. Can I go with you?
+- It won't be safe with me either. But I can take you with me to Hamburg.
+
+Arthur's phone buzzed. It was Sergey. Arthur went to the bar and paid.
+
+- Get up - we have to leave.
+
+They went out of the coffee shop and started walking.
+
+- Where are we going?
+- We need to get a car. Just keep walking.
+
+He checked his phone. Sergey was approaching them. After 2 minutes walking a car stopped near them.
 
 
-- He will persuade Arthur to either stay at his place or book a hotel for him
-- Arthur doesn't want to be tracked, so he wants to get a room in a hotel
-  without revealing the name
-- Serge tells him to relax - go out and get a drink
-- Arthur goes out and meet Nadja who was sent to him
-- They speak German, she calls him and her number is the same as the number he
-  was called from in SF
-- He drags her out of the club kicking some asses on the way
-- She gets hit by a car in front of the night club
-- Her phone is ringing, Arthur picks up and talks to someone on the other end.
   They tell him that they watch him and that he should be careful. They will
 take care of Nadja's body (or not - dunno yet)
 - Arthur calls Serge and asked him to get a car for him
