@@ -67,13 +67,12 @@ with the name shield. He went straight to her:
 > - "Oh, good morning Mr. Arthur. The jet is ready, please follow me."
 
 They went through the building to the airfield, get into a golf cart
-and started driving towards the jet. He was greeted by the pilots and his flight
-companion - a good-looking half German, half Hungarian entrepreneur from
+and started driving towards the jet. When they went up the he was greeted by the pilots and his flight
+companion - Thomas. Thomas was a  good-looking half German, half Hungarian entrepreneur from
 Budapest who was also living in Munich part time. It was quite convenient - they could speak either English or German. Arthur was fluent in both
-  languages but preferred to speak English.
+  languages but preferred to speak English whenever he couldn't use his mother tongue.
 
-Even after he spent more than half of his life and the most of his adult life
-in Germany but being a boy from Leningrad he still couldn't forgive the Germans
+Even after spending majority of his life in Germany but being a boy from Leningrad he still couldn't forgive the Germans
 for the [Siege of Leningrad](https://en.wikipedia.org/wiki/Siege_of_Leningrad) where the people had to dig out freshly buried
 bodies and use their meat as food to survive.
 

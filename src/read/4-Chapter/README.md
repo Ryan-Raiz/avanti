@@ -10,7 +10,7 @@ a matter of time until they try to get to him again.
 So he needed to find his contact in Budapest quickly. Back in
 SF Vlad told him that Serge is the person to talk to. He may potentially have
 some ideas about people who are trying to set him up. He is the new man in
-town - the one from the mothership.
+town - the one from the mother ship.
 
 Vlad worked with Serge hand in hand for almost a year before he moved to San Francisco. He was handing over Budapest to him - introducing him to all his contacts and revealing all the secret spots. It was a regular procedure whenever a `city owner` was replaced.
 
@@ -21,7 +21,7 @@ he was a kid. His travel companion just woke up.
 
 - Hey man! How was your sleep?
 - I'm happy that I could get some of it. Was working almost the full flight
-  trhrough. You were sleeping like a baby btw.
+  through. You were sleeping like a baby btw.
 - Yes, I had a couple of rough days prior to that and needed some sleep.
 - Do you want to join me? I'll have cab waiting for me. We can take you to the
   city center.
@@ -255,12 +255,13 @@ They went out of the coffee shop and started walking.
 - Where are we going?
 - We need to get a car. Just keep walking.
 
-He checked his phone. Sergey was approaching them. After 2 minutes walking a car stopped near them.
+He checked his phone. Sergey was approaching. A small, white SUV stopped and Sergey got out.
 
+- The papers are in the glove box. Where is the mobile phone?
+- Here you go. Please, try to find out as much as you can - when was the sim card bought, who was it registered to - anything you can. Contact me as soon as you know anything.
+He turned to Nadja.
+- Get in the car. We gotta go.
 
-  They tell him that they watch him and that he should be careful. They will
-take care of Nadja's body (or not - dunno yet)
-- Arthur calls Serge and asked him to get a car for him
-- He drives to either Germany or Kiew
----- what questions should he ask: who could it be - what's the number they
-called from etc.
+They got into the car and started driving. It will take them around 40 minutes to get out of the city. It was starting to get dark. Budapest was glowing.
+
+- Stunning city. I will definitely come back - thoughts were flying through Arthur's head. The longer he will drive the calmer he will get.

@@ -43,8 +43,9 @@ module.exports = {
             '',
             ['1-Chapter/', 'Chapter 1 - Sasha'],
             ['2-Chapter/', 'Chapter 2 - Vlad'],
-            ['3-Chapter/', 'Chapter 3 - Flight'],
-            ['4-Chapter/', 'Chapter 4 - Serge']
+            ['3-Chapter/', 'Chapter 3 - Thomas'],
+            ['4-Chapter/', 'Chapter 4 - Serge'],
+            ['5-Chapter/', 'Chapter 5 - Nadja']
           ]
         }
       ],
