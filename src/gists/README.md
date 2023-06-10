@@ -102,3 +102,9 @@ me to choose between my ass and yours, I will prefer mine any time of the day - 
 >     you. I'm sick and tired of the liberal propaganda machine that tells me
 >     stop feeling anything towards women. I'm not objecting to my body that's
 >     shooting hormones into my blood every time I see a beautiful woman."
+
+> We just killed a person. Can you just be scared or sad for a moment? - she asked
+> Believe me, babe - I'm sad most of the time.
+
+# Links
+- https://www.thenation.com/article/archive/seven-decades-nazi-collaboration-americas-dirty-little-ukraine-secret/
